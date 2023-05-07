@@ -1,2 +1,1 @@
-Hello :)
-Im new here
+Hello, nice to meet you all :)
